@@ -1,2 +1,0 @@
-# hazirahmaksahresume
-My Individual Assignment
